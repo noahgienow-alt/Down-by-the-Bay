@@ -11,7 +11,7 @@ My mother will say
 Kissing a moose?
 Did you ever see a duck
 Down on his luck?
-
-
+Did you ever see a frog
+Jumping on a log?
 Down by the bay.
 
